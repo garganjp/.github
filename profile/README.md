@@ -1,1 +1,1 @@
-<a href="https://www.gargan.jp">![image](https://github.com/user-attachments/assets/610b1f01-477a-4a2c-80e9-974d5cd49c00)</a>
+<a href="https://www.gargan.jp">![ガルガンチュア音楽祭](https://github.com/user-attachments/assets/699e0180-a476-47e3-be93-bd1ebc665daa)</a>
